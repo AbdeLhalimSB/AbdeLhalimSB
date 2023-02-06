@@ -1,5 +1,5 @@
 # 💫 About Me:
-AbdeLhalim, automation lover, nothing else
+AbdeLhalim, 21 years old, currently i'm working on automation scripts.
 
 
 ## 🌐 Socials:
