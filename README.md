@@ -1,5 +1,5 @@
 # 💫 About Me:
-i m AbdeLhalim, automation lover, nothing else
+AbdeLhalim, automation lover, nothing else
 
 
 ## 🌐 Socials:
