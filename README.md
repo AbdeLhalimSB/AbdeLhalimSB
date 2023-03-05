@@ -1,5 +1,5 @@
 # 💫 About Me:
-AbdeLhalim from Morocco, 21 years old, currently i'm working on automation scripts...
+AbdeLhalim from Morocco, 21 years old, currently i'm working on automation scripts....
 
 
 ## 🌐 Socials:
